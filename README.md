@@ -1,2 +1,0 @@
-# Kumpra
-asdas
